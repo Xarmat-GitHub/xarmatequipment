@@ -1,3 +1,3 @@
 # xarmatequipment
 
-Hello? Is there something? :think:
+Hello? Is there something? 🤔
